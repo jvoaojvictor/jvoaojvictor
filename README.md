@@ -3,4 +3,4 @@
 - Creator of Nomenclaturas (+140.000 Downloads): https://play.google.com/store/apps/details?id=app.jvextreem.nomenclaturas
 - My page on Google Play: https://play.google.com/store/apps/dev?id=8228948588029610862
 - YouTube +20.000 inscritos;
-- 📫 Contact: oaojvictor@gmail.com / t.me/jv_oaojvictor
+- 📫 Contact: oaojvictor@gmail.com / telegram: http://t.me/jv_oaojvictor
